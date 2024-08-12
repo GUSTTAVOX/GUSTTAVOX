@@ -8,3 +8,4 @@ MEU SONHO É DESENVOLVEDOR DE JOGOS 💼
 NAS MINHAS HORAS VAGAS GOSTO DE JOGAR 🎮
 00001138485718SP@AL.EDUCACAO.SP.GOV.BR
 ![](https://media1.tenor.com/m/JTHhHWfgXCMAAAAd/ocastrin.gif)
+![](https://media1.tenor.com/m/-xatoYg8D-UAAAAC/caramelldansen-seu-madruga.gif)
