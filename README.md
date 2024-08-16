@@ -1,5 +1,5 @@
  hora das do JOB 🤕
-
+all honor and glory to God 
 MY NAME IS GUSTTAVO SAN 👼
 ESTUDO NA SALA 1°C 💣
 NA ESCOLA LEONARDO VILAS BOAS,OSASACO/SP ✈️
